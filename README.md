@@ -6,7 +6,7 @@ Nko-dice is very simple game.
 
 You can throw five dices in this game. 
 
-All surfaces are written word.
+All surfaces are written letter.
 
 And you make something with things you made. 
 
