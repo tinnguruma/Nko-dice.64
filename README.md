@@ -10,6 +10,6 @@ All surfaces are written word.
 
 And you make something with things you made. 
 
-Each surfaces are written "ち""ん""こ""う""ま""お"
+Each surfaces are written "ち","ん","こ","う","ま","お"
 
 
