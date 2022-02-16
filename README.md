@@ -12,4 +12,16 @@ And you make something with things you made.
 
 Each surfaces are written "ち","ん","こ","う","ま","お"
 
+And you can make follow words. 
+
+"ちんこ","うんこ","まんこ","おちんこ","おまんこ"
+
+
+And......
+
+
+"おちんちん"!!!!!!
+
+
+If you make these words, you can these words on your eyes. 
 
